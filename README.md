@@ -50,6 +50,4 @@
 Find the detailed project reports here.
 
 
-Your thoughts and feedback are highly appreciated. Let's continue this data-driven journey together!
-
 
